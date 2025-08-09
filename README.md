@@ -1,0 +1,2 @@
+# Amesorashop
+latihan ajaa
